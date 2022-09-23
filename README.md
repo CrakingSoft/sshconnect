@@ -5,4 +5,4 @@ Download: https://cutt.ly/5VmW3za
 
 
 
-<a href="https://ibb.co/82D88Rz"><img src="https://i.ibb.co/hHR88nX/image.jpg" alt="image" border="0"></a><br /><a target='_blank' href='https://imgbb.com/'</a><br />
+<a href="https://ibb.co/82D88Rz"><img src="https://i.ibb.co/hHR88nX/image.jpg" alt="image" border="0"></a><br />
